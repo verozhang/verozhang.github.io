@@ -1,2 +1,2 @@
-# VeroZhang's Homepage
-[My Research Homepage at University of Florida](http://cise.ufl.edu/~yiczhang)
+# Dr. Yi-Chi David Zhang
+[Assistant professor in residence at UNLV](https://www.unlv.edu/people/yichi-zhang)
